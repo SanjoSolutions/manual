@@ -1,2 +1,3 @@
-# manual
-Manual
+# Manual
+
+This work is devoted to God.
